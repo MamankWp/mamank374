@@ -1,0 +1,1 @@
+print ('Anda kayak kontol Belajar ngoding dulu sana jancok')
