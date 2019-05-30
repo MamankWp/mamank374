@@ -1,0 +1,2 @@
+# mamank374
+GUNAKAN DENGAN BIJAK
